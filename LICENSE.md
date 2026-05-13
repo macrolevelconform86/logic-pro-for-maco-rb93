@@ -1,4 +1,4 @@
-# 
+# Enhance Logic Pro for macOS with Logic Pro for macOS custom Addon: social-media-export & reverb, the #1 addon. Includes social-media-export and reverb for a smoother and more
 
 
 
